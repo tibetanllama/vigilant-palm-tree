@@ -1,4 +1,4 @@
-Morning rain cooled the streets while a
+Morning rain cooled the streets while a 
 
 
 
