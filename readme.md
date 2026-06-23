@@ -1,4 +1,4 @@
-Morning rain cooled the streets while a curious c
+Morning rain cooled the streets while a curious ca
 
 
 
