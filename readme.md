@@ -1,4 +1,4 @@
-Morning rain cooled the st
+Morning rain cooled the str
 
 
 
