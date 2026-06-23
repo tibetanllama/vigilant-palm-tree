@@ -1,4 +1,4 @@
-Morning rain cooled the streets while a cur
+Morning rain cooled the streets while a curi
 
 
 
