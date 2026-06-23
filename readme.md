@@ -1,4 +1,4 @@
-Morning rain cooled the streets while a curio
+Morning rain cooled the streets while a curiou
 
 
 
