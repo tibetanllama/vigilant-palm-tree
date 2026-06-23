@@ -1,4 +1,4 @@
-Morning rain cooled the streets while a curious cat watched cyc
+Morning rain cooled the streets while a curious cat watched cycl
 
 
 
