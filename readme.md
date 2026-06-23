@@ -1,4 +1,4 @@
-Morning rain cooled th
+Morning rain cooled the
 
 
 
