@@ -1,4 +1,4 @@
-Morning rain cooled the streets while a curious cat watched cyclists pass beneath bright blue awnin
+Morning rain cooled the streets while a curious cat watched cyclists pass beneath bright blue awning
 
 
 
